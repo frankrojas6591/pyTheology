@@ -24,7 +24,7 @@ The project was concieved as a response to a discussion on an article about Cath
 3. My sister replied with the following:
 
 -----
-Not a Catholic” thing but an innately human and I would argue necessary thing.  The “positive” flow of energy can only be discerned (judged) as positive in light of its opposite or negative.  Light is only knowable when we “see” the dark and experience the absence of light. 
+The article's "negative viewpoint" about tyranny of technology is not a Catholic” thing but an innately human and I would argue necessary thing.  The “positive” flow of energy can only be discerned (judged) as positive in light of its opposite or negative.  Light is only knowable when we “see” the dark and experience the absence of light. 
 
 1. This ability to see light and dark, positive and negative, good and bad is built in to the way we were created in the image and likeness of God who is the just judge. 
 
